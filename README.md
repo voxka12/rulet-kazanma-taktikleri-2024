@@ -1,0 +1,1 @@
+# rulet-kazanma-taktikleri-2024
